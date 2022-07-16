@@ -1,0 +1,1 @@
+I understood how issues works and their relevance. 
